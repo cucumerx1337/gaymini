@@ -1,1 +1,1 @@
-# gaymini
+# gaymini ai
